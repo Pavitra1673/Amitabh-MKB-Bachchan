@@ -1,2 +1,2 @@
 # Amitabh-MKB-Bachchan
-Rishte mein tog hum tumhare baap lagte hai 
+Rishte mein toh hum tumhare baap lagte hai 
